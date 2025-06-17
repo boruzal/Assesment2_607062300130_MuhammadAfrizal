@@ -1,1 +1,1 @@
-# Assesment2_607062300130_MuhammadAfrizal
+# Assesment2_607062300130_MuhammadAfrizal_type G
